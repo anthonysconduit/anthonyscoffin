@@ -47,18 +47,20 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed
 - Busy ⭒ i dont put this on often, usually only when im upset or busy/want to be left alone more. so dont interact unless i do or if youre a friend, basically
 
 ## **BEFORE YOU INTERACT.ᐟ** ![warning](https://64.media.tumblr.com/fd3ebb8f4374f0ff470173bdf3720e21/e92e724d08501b36-d2/s75x75_c1/4c4bf1733ae1c5cdf39a7c8bc6614a42332a366f.gif)
+- i am "anti-harrassment", also known as "proship/profic". although, labels confuse me with all the new additions so id rather just say im anti-harrassment. if you need more clarificiation: yes i do have my own "problematic" likings, i thought thats what proship was? but then darkship appeared? i dont really get it, im old. anyways! block me if you need to.
+
 - as mentioned, im pretty shy so i might go quiet or get overwhelmed with new people, so be patient with me
   
 - i may not respond right away if i am offtab but i try my best to, im almost always multitasking
   
 - i am pretty blunt, if you upset me i will not be afraid to call you out.
   
-- i will not be afraid to hide you if you annoy me, at this point i hide freely; following my own dni and yours (even the "*hidden*" parts of my dni).
+- i will not be afraid to hide you if you annoy me, at this point i hide freely; following my own dni and yours.
 
 ## **DO NOT INTERACT + DO'S AND DON'TS.ᐟ** ![angry](https://64.media.tumblr.com/48d355ab2558992c964aaa251de9c7fb/7d4346d1477298e1-3c/s75x75_c1/ab4a72a28910a0ccc108891bc1f0c24414ce36ca.gif)
-- are pro-harassment. iykyk <3
+- are pro-harassment (an "anti")
   
-- fall under my [dni](https://rentry.co/dniscoffin), dig a little.
+- fall under my [dni](https://rentry.co/dniscoffin).
   
 - please for the love of god if you have a problem with me and or my skins or WHATEVER, ***HIDE ME***. do not insult me, hide me and move on... shouldnt have to be said/asked.
   
