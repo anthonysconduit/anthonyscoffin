@@ -47,7 +47,7 @@ hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed
 - Busy ⭒ i dont put this on often, usually only when im upset or busy/want to be left alone more. so dont interact unless i do or if youre a friend, basically
 
 ## **BEFORE YOU INTERACT.ᐟ** ![warning](https://64.media.tumblr.com/fd3ebb8f4374f0ff470173bdf3720e21/e92e724d08501b36-d2/s75x75_c1/4c4bf1733ae1c5cdf39a7c8bc6614a42332a366f.gif)
-- i am "anti-harrassment", also known as "proship/profic". although, labels confuse me with all the new additions so id rather just say im anti-harrassment. if you need more clarificiation: yes i do have my own "problematic" likings, i thought thats what proship was? but then darkship appeared? i dont really get it, im old. anyways! block me if you need to.
+- i am "anti-harassment", also known as "proship/profic". although, labels confuse me with all the new additions so id rather just say im anti-harassment. if you need more clarification: yes i do have my own "problematic" likings, i thought thats what proship was? but then darkship appeared? i dont really get it, im old. anyways! block me if you need to.
 
 - as mentioned, im pretty shy so i might go quiet or get overwhelmed with new people, so be patient with me
   
