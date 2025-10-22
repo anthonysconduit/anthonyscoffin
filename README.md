@@ -1,20 +1,22 @@
-# INTRO.ᐟ ⋮
-[♫](https://www.youtube.com/watch?v=uMA5Yie-iCI) " *...You don't want freedom, you want trick photography.* "
-[![fandomimg1](https://file.garden/ZNjY5-CbZ0o-GQoj/Ft9zkupaIAIWs7-maskhtkk.png)](https://twitter.com/Cottonboi_56309/status/1648163080596246528/)
-<sub>art credit: [@Cottonboi_56309](https://twitter.com/Cottonboi_56309/status/1648163080596246528/) on Twitter/X</sub>
+<h1 align="center">${\textsf{\color{#FFFFA0}Intro}}$</h1>
+<p align="center">
+<img align="center" src="https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0&style=plastic&label=People+expired.+(Views)">
+<p align="left">
+<a href="https://www.youtube.com/watch?v=uMA5Yie-iCI">♫</a> " <I>...Anything you need from me, ${\textsf{\color{#FF784C}the eight arms around you}}$?
+<p align="center">
+<a href="https://open.spotify.com/album/03qPdf3vtxl2IUHtYMC2Zr?si=rAPePbIZTJiwEi9mrg6FnQ"><img align="center" src="https://file.garden/ZNjY5-CbZ0o-GQoj/ranmaruhtkkgraphicmaskbottom.gif">
+<p align="right">Another ${\textsf{\color{#3E9ADE}heart}}$ to pound for you?</I> " <a href="https://open.spotify.com/track/1jY9LcjSKmvQ6iGxchj31e?si=964bcd00fabb4e38">♫</a>
+  <p align="center">
+ <br/>
+<h2 align="center">${\textsf{\color{#FFFFA0}About}}$</h2>
+ <p align="center">hi, im <B>Anth</B>ony<I>!</I> <B>it/its</B> or he/him, 21 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section <img src="https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif"></p>
+ <p align="center">
+<p align="center"><a href="https://lgbtqia.fandom.com/wiki/Transmasculine"><img align="center" src="https://file.garden/ZNjY5-CbZ0o-GQoj/transmasculine-7-stripes-20-px.png"></a> <a href="https://lgbtqia.fandom.com/wiki/Non-binary"><img align="center" src="https://file.garden/ZNjY5-CbZ0o-GQoj/non-binary-4-stripes-20-px.png"></a> <a href="https://lgbtqia.fandom.com/wiki/Achillean"><img align="center" src="https://file.garden/ZNjY5-CbZ0o-GQoj/achillean20x20bcpostimagdiedilldoitMYSELF.png"></a> <a href="https://lgbtqia.fandom.com/wiki/Biromantic"><img align="center" src="https://file.garden/ZNjY5-CbZ0o-GQoj/biromantic-3-stripes-20-px.png"></a> <a href="https://lgbtqia.fandom.com/wiki/Unlabeled"><img align="center" src="https://file.garden/ZNjY5-CbZ0o-GQoj/Unlabeled20x20bcpostimgdiedilldoitMYSELF.png"></a> 
 
-![](https://komarev.com/ghpvc/?username=anthonyscoffin&color=8ca1e0&style=plastic&label=People+expired.+(Views))
+<h2 align="center">${\textsf{\color{#FFFFA0}Links}}$</h2>
+<p align="center">⋆ 🔗 <a href="https://rentry.co/anthonyscoffin">rentry</a> ⋆ 🔗 <a href="https://anthonyscoffin.atabook.org/">atabook</a> ⋆ 🔗 <a href="https://anthonyscoffin.straw.page/">strawpage</a> ⋆ 🔗 <a href="http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7">smartgb</a> ⋆ 🔗 <a href="https://www.patreon.com/anthonyscoffin/about">patreon</a> ⋆ 🔗 <a href="https://www.last.fm/user/anthonyscoffin">last.fm</a> ⋆ 🔗 <a href="https://discordid.netlify.app/?id=471151816688533535">discord</a> ⋆ 🔗 <a href="https://spacehey.com/anthonyscoffin">spacehey</a>
 
-hi, im **Anth**ony.ᐟ **it/its** or he/him, 21 ⋆ im a queer disaster obsessed with fandom and music, and an artist/editor of sorts, i make art (traditional/digital, sometimes try animation) and i edit (sprites and video). anyways, i am terrible at introduction so lets just skip to the next section ![stars](https://file.garden/ZNjY5-CbZ0o-GQoj/edebad09.gif)
-
-[![flag1](https://file.garden/ZNjY5-CbZ0o-GQoj/transmasculine-7-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Transmasculine) [![flag2](https://file.garden/ZNjY5-CbZ0o-GQoj/non-binary-4-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Non-binary) [![flag3](https://file.garden/ZNjY5-CbZ0o-GQoj/achillean20x20bcpostimagdiedilldoitMYSELF.png)](https://lgbtqia.fandom.com/wiki/Achillean) [![flag4](https://file.garden/ZNjY5-CbZ0o-GQoj/biromantic-3-stripes-20-px.png)](https://lgbtqia.fandom.com/wiki/Biromantic) [![flag5](https://file.garden/ZNjY5-CbZ0o-GQoj/Unlabeled20x20bcpostimgdiedilldoitMYSELF.png)](https://lgbtqia.fandom.com/wiki/Unlabeled) 
-
-⋆ 🔗 [rentry](https://rentry.co/anthonyscoffin) ⭒ 🔗 [atabook](https://anthonyscoffin.atabook.org/) ⭒ 🔗 [strawpage](https://anthonyscoffin.straw.page/) ⭒ 🔗 [smartgb](http://users.smartgb.com/g/g.php?a=s&i=g19-01405-a7) ⭒ 🔗 [patreon](https://www.patreon.com/anthonyscoffin/about) ⭒ 🔗 [last.fm](https://www.last.fm/user/anthonyscoffin) ⭒ 🔗 [discord](https://discordid.netlify.app/?id=471151816688533535) ⭒ 🔗 [spacehey](https://spacehey.com/anthonyscoffin) ⋆
-
-[![steam-thing](https://steam-current-game.vercel.app/api/?steamids=76561198355161550)](https://steamcommunity.com/id/anthonyscoffin/)
-
-[![last-fm-thing](https://lastfm-recently-played.vercel.app/api?user=anthonyscoffin&header_style=compact_stats_only&show_user=footer&count=3&width=300&loved=true&footer_style=compact&bg_color=5c6893)](https://www.last.fm/user/anthonyscoffin) [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316r4eyubvy7c33mb45uxrofcqry&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=cad9ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-[![Discord Presence](https://lanyard.kyrie25.dev/api/471151816688533535?showDisplayName=true&showBanner=animated&hideDecoration=false&hideStatus=false&hideProfile=false&hideActivity=false&hideSpotify=false&hideNameplate=true&animatedDecoration=true&theme=dark&waveSpotifyColor=transparent&waveColor=transparent&gradient=ffffff-cad9ff-8ca1e0-6072a9-2f3d68-111b3f&hideClan=false&bannerFilter=brightness(0.5)blur(1px)&idleMessage=probably%20asleep%20or%20away...&clanbg=3f444fa5)](https://discord.com/users/471151816688533535)
+ts is a wip ill work on more tomorrow im tired rn gn
 
 ![divider](https://file.garden/ZNjY5-CbZ0o-GQoj/dividerquestionmark.png)
 
